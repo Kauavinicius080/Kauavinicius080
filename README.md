@@ -9,8 +9,8 @@ e gosto muito de jogos me geral.
 
 ## 💠 Sobre mim
 
-- 💻gosto muito de dragon ball
-- ⚙️ estou fazendo o primeiro ano do ensino medio
-- 📘faço curso de progamação
+- 💻Gosto muito de dragon ball
+- ⚙️ Estou fazendo o primeiro ano do ensino medio
+- 📘Faço curso de progamação
 - 🌌 Gosto de varios jogos
 
