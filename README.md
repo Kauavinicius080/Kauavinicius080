@@ -1,7 +1,7 @@
 ## Salve crias de Rj👋
 # 💙🎮 Bem-vindo(a) ao meu perfil de Kauã
 
-🧊 Olá! MEu nome e Kauã, gotoso muito de infromatica e pretendo me forma em TI, no momento estou cursando progamação, e estou trabalhando como iniciante de tecnico de celular uma coisa que eu gosto muito
+🧊 Olá! Meu nome e Kauã, gotoso muito de infromatica e pretendo me forma em TI, no momento estou cursando progamação, e estou trabalhando como iniciante de tecnico de celular uma coisa que eu gosto muito
 e gosto muito de jogos me geral.
 
 
